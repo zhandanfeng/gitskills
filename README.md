@@ -5,4 +5,10 @@ new new new
 ftkllghh hhhhhhhhhhhhhhhhgggggggggggggggggggg
 ggggggggggggggggggggggggggggggggggggggggggggggggg
 hhhhhhhhhhhhhhhhhhhhhhhh
+ 
 memememmmemowowoowow
+ 
+devdev
+is memememem is meme 
+update you partner
+ 
